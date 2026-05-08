@@ -21,7 +21,7 @@ If you want to check out my socials, click [here](https://guns.lol/mysticcheats)
 - Learning about the universe
 
 ### My favourite things
-- Movies: Interstellar, Project Hail Mary, The Martian, Avatar (First movie and TWOW. Still need to watch the 3rd movie), Dune, Zootopia, The Bad Guys 1 & 2
+- Movies: Interstellar, Project Hail Mary, The Martian, FNAF 1 & 2, Avatar (First movie and TWOW. Still need to watch the 3rd movie), Dune, Zootopia, The Bad Guys 1 & 2
 - Food: Hawaiian pizza (People will disagree)
 - Characters: Any FNAF Bonnie variant, Lefty (FNAF), Golden and Toy Freddy, Springtrap, Pawbert Lynxley, Switch (Seal Team 2022)
 - Subject: Digital Technology
