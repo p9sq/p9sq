@@ -1,7 +1,7 @@
-# Welcome to my profile
+# Welcome to my profile! 😄
 If you want to check out my socials, click [here](https://guns.lol/mysticcheats)
 
-### Some interesting facts about me
+### Some interesting facts about me 👀
 - I'm currently into astronomy (kind of amateur), coding (mainly JavaScript), gaming, and photography (amateur, mainly landscape)
 - Fan of FNAF, SFAWTDE/DAWTDE, and all the anime and movies I've listed below
 - Spanish heritage (Mother's side)
@@ -10,7 +10,7 @@ If you want to check out my socials, click [here](https://guns.lol/mysticcheats)
 - Beginner world builder (Check the Vulcean Continuity folder in my p9sq.github.io repository)
 - Ex-Subway Surfers mod maker
 
-### What I enjoy
+### What I enjoy 🤩
 - Making mods for Space Engine
 - Simulating orbital mechanics to verify stability for my custom systems in Universe Sandbox
 - World-building my Vulcean Continuity
@@ -20,7 +20,7 @@ If you want to check out my socials, click [here](https://guns.lol/mysticcheats)
 - Watching astronomy YouTube channels like Dr Becky, Cool Worlds (David Kipping), and Kyplanet
 - Learning about the universe
 
-### My favourite things
+### My favourite things 💜
 - Movies: Interstellar, Project Hail Mary, The Martian, FNAF 1 & 2, Avatar (First movie and TWOW. Still need to watch the 3rd movie), Dune, Zootopia, The Bad Guys 1 & 2
 - Food: Hawaiian pizza (People will disagree)
 - Characters: Any FNAF Bonnie variant, Lefty (FNAF), Golden and Toy Freddy, Springtrap, Pawbert Lynxley, Switch (Seal Team 2022)
