@@ -31,3 +31,4 @@ If you want to check out my socials, click [here](https://guns.lol/mysticcheats)
 - Colour: Purple
 - Anime: Beastars, Jojo's Bizarre Adventure, Jujutsu Kaisen, and Spy X Family (They're also the only anime I've watched so far)
 - Manga: Beastars, Jojo's Bizarre Adventure, and Spy X Family (They're also the only manga I've read so far)
+- Shows/Series: Solar Balls, Hazbin Hotel (I've only seen the pilot + clips of the show elsewhere), Helluva Boss, and TAWOG
