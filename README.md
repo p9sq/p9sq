@@ -27,7 +27,7 @@ If you want to check out my socials, click [here](https://guns.lol/mysticcheats)
 - Subject: Digital Technology
 - Animals: Otters and sharks
 - Games: Space Engine, Universe Sandbox, Minecraft, FNAF, and Kerbol Space Program
-- Music artists: Navjaxx, VXLLAIN, Hans Zimmer, Narvent, Asketa, XTOM, Tame Impala, VØJ, GOLDKID$, SAGA RXSE, The Neighbourhood, and ATSMXN
+- Music artists: Elton John, Ricky Martin, Queen, Navjaxx, VXLLAIN, Hans Zimmer, Narvent, Asketa, XTOM, Tame Impala, VØJ, GOLDKID$, SAGA RXSE, The Neighbourhood, and ATSMXN
 - Colour: Purple
 - Anime: Beastars, Jojo's Bizarre Adventure, Jujutsu Kaisen, and Spy X Family (They're also the only anime I've watched so far)
 - Manga: Beastars, Jojo's Bizarre Adventure, and Spy X Family (They're also the only manga I've read so far)
